@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ZachCook23
 - 👀 I’m interested in music, sports, hiking, camping, baseball, movies, and the Dodgers.  
-- I'm about to take over the World. Like Seriously.
+- I'm about to take over the World. Like seriously.
 - 📫 How to reach me:  zjclaw@gmail.com or 303-960-6580
 -  ⚡ Fun fact: I have been to the end of the internet.  And it only took 2 weeks.  
 
